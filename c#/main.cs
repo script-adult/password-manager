@@ -1,10 +1,156 @@
+mxssy
+phishmeifyoucan
+Online
+
+mxssy — 7/31/24, 3:52 PM
+Image
+k0PSNT — 8/2/24, 4:14 AM
+Attachment file type: unknown
+bot.exe
+53.54 KB
+mxssy — 8/2/24, 4:16 AM
+Attachment file type: unknown
+c2server.exe
+51.30 KB
+mxssy — 8/5/24, 10:17 PM
+https://vm.tiktok.com/ZGevR23D2/
+TikTok
+TikTok · audixtok
+182.7K likes, 509 comments. “One last dance ||”
+
+mxssy — 8/5/24, 10:27 PM
+mxssy — 8/6/24, 12:28 AM
+wompwomp12341223@gmail.com
+ACCOUNT TO SHEETS SSL
+mxssy — 8/12/24, 8:58 PM
+stevensonmary87@hotmail.com
+Mail Password : cfX4QQ6d
+Discord Password : 14b7e6a2-aa1b-4743-84d0-8833718173c6
+https;//outlook.com/
+mxssy — 8/12/24, 9:06 PM
+You sent a gift, but...
+The gift link has either expired or has been revoked. You can still create a new link to send again.
+k0PSNT — 8/12/24, 9:16 PM
+https://discord.gg/k3fxKCCf
+llllllllll
+mxssy — 8/21/24, 12:42 PM
+mxssy — 8/21/24, 1:01 PM
+Image
+mxssy — 8/23/24, 8:14 PM
+Image
+mxssy — 8/25/24, 6:38 PM
+mxssy — 8/26/24, 6:33 PM
+https://www.inet.se/produkt/4305754/kioxia-exceria-plus-g3-nvme-ssd-1tb
+https://www.inet.se/produkt/x217271/sony-dualshock-4-black
+
+https://www.inet.se/produkt/5413672/inet-usb-3-1-hub-4-x-usb-a-svart
+mxssy — 8/26/24, 6:46 PM
+https://www.amazon.com/Hacking-Security-Comprehensive-Penetration-Cybersecurity/dp/1493224255/ref=sr_1_9?crid=CVQZCSPH34YC&dib=eyJ2IjoiMSJ9.Xk7Tw9YLy_Mdv9eCUW2S0CM-Rq15cb8Q6U4dUbBY383DfWAISwk7G48lzxC57NJhbq-N8MSxcKBl32QI6rv4kQP9xZHCE-9c2OzmGuveTmJTqFFc8LYdHh-vh9YgTMNopwz1hc5DBajZRRFM6b4TIIIPE8XdLE6ZGWVxLPRTCO04qXiNv8vIIjoV7uMKobYPj2_kaUPzueyI9omMdJ6dPgN3JupnNeqXuXKAcqEjQrohfhEEZbDj6jskCEPGZz-XV1j1j2DXC5gXhcxtPbtAfFHZE-cWecAd5F36k5t5_kI.1CjH92XVdih0zRXjkn8pgCg8bpSbdInRoQaI3tA4GtI&dib_tag=se&keywords=cyber+security+books&qid=1724697859&sprefix=cyber+security%2Caps%2C253&sr=8-9
+Hacking and Security: The Comprehensive Guide to Penetration Testin...
+Hacking and Security: The Comprehensive Guide to Penetration Testing and Cybersecurity (Rheinwerk Computing)
+Image
+mxssy — 8/26/24, 7:02 PM
+https://www.g2g.com/categories/rocket-league-account/offer/G1710133620214LK?seller=Tryharddota
+G2G: World Leading Digital Marketplace Platform
+Buy & Sell In-Game Items, Game Accounts, Game Coaching, Game skins, Gift cards securely with ease. Lowest price from
+thousands of reputable sellers & fastest delivery in the industry.
+mxssy — 9/2/24, 11:22 AM
+https://vm.tiktok.com/ZGewNJGTY/
+TikTok
+TikTok · Musicalok
+Check out Musicalok’s video.
+
+mxssy — 9/2/24, 6:22 PM
+mxssy — 9/12/24, 4:09 PM
+Image
+Image
+Image
+Image
+mxssy — 9/20/24, 4:48 PM
+✅
+
+ 
+k0PSNT
+Bloons TD Battles 2
+7mo ago
+New Player
+mxssy — 11/10/24, 11:41 AM
+Image
+Image
+k0PSNT — 11/17/24, 8:50 PM
+https://discord.gg/NCbmSFdH
+mxssy — 11/17/24, 8:50 PM
+https://discord.gg/NCbmSFdH
+k0PSNT — 11/18/24, 1:07 PM
+https://discord.gg/AzCFKbDM
+mxssy — 1/30/25, 8:28 PM
+https://www.youtube.com/shorts/Wq2g3JxaM3k
+YouTube
+NetworkChuck
+Hacking Tools
+Image
+mxssy — 2/20/25, 2:46 PM
+Fucking hor neger vad gör du?
+@k0PSNT
+@k0PSNT
+@k0PSNT
+@k0PSNT
+k0PSNT — 2/22/25, 7:45 PM
+https://discord.gg/CfKCqqbw
+mxssy — 2/24/25, 10:47 PM
+Image
+Image
+mxssy — 2/28/25, 10:35 PM
+Welcome to FastNetMon Advanced trial. Your activation code is following: SANJENECLOMoRguGuBteNeCheZuHboMuZbuSiTraToWpoRoNniBaJsiToRciXuZd
+mxssy — 3/28/25, 9:48 PM
+Image
+k0PSNT — 3/31/25, 4:45 PM
+https://discord.gg/3gYcz4Mt
+mxssy — 4/6/25, 7:38 PM
+Image
+Image
+mxssy — 4/6/25, 7:47 PM
+Image
+mxssy — 4/20/25, 6:31 PM
+https://discord.gg/KDFyGucG
+k0PSNT — 4/20/25, 8:56 PM
+Attachment file type: unknown
+NordInstaller.exe
+7.64 MB
+k0PSNT — 4/20/25, 9:44 PM
+Image
+Image
+Image
+mxssy — 6:14 PM
+https://github.com/script-adult/password-manager/blob/main/c%23/main.cs
+GitHub
+password-manager/c#/main.cs at main · script-adult/password-manager
+Password manager used in C#, python, c++ and html & css - script-adult/password-manager
+Password manager used in C#, python, c++ and html & css - script-adult/password-manager
+ALT
+k0PSNT — 6:35 PM
 using System;
 using System.Collections.Generic;
 using System.IO;
 using System.Security.Cryptography;
 using System.Text;
 using System.Windows.Forms;
-using Newtonsoft.Json;
+Expand
+message.txt
+11 KB
+﻿
+k0PSNT
+lovely._ella
+k0psnt
+A really big fucking hole coming right up! - Thermite
+using System;
+using System.Collections.Generic;
+using System.IO;
+using System.Security.Cryptography;
+using System.Text;
+using System.Windows.Forms;
+using System.Text.Json;
+using System.Drawing;
 
 public class PasswordManagerApp : Form
 {
@@ -19,10 +165,11 @@ public class PasswordManagerApp : Form
         InitializeComponents();
         masterPassword = AskMasterPassword();
         if (masterPassword == null) return;
-        
+
         salt = LoadSalt();
         data = LoadData(masterPassword);
-        PopulateDataGrid();
+        if (data != null)
+            PopulateDataGrid();
     }
 
     private void InitializeComponents()
@@ -31,23 +178,103 @@ public class PasswordManagerApp : Form
         this.Width = 600;
         this.Height = 400;
 
-        dataGridView = new DataGridView { Dock = DockStyle.Fill };
+        dataGridView = new DataGridView
+        {
+            Dock = DockStyle.Fill,
+            AutoSizeColumnsMode = DataGridViewAutoSizeColumnsMode.Fill
+        };
         dataGridView.Columns.Add("Service", "Service");
         dataGridView.Columns.Add("Username", "Username");
         dataGridView.Columns.Add("Password", "Password");
         this.Controls.Add(dataGridView);
 
-        var addButton = new Button { Text = "Add New", Dock = DockStyle.Top };
-        addButton.Click += AddNewEntry;
-        this.Controls.Add(addButton);
+        var buttonPanel = new FlowLayoutPanel
+        {
+            Dock = DockStyle.Top,
+            FlowDirection = FlowDirection.LeftToRight,
+            Height = 40,
+            Padding = new Padding(10)
+        };
 
-        var deleteButton = new Button { Text = "Delete Selected", Dock = DockStyle.Top };
+        var addButton = new Button { Text = "Add New", Width = 100 };
+        addButton.Click += AddNewEntry;
+
+        var deleteButton = new Button { Text = "Delete Selected", Width = 120 };
         deleteButton.Click += DeleteEntry;
-        this.Controls.Add(deleteButton);
+
+        buttonPanel.Controls.Add(addButton);
+        buttonPanel.Controls.Add(deleteButton);
+        this.Controls.Add(buttonPanel);
 
         this.FormClosing += OnClosing;
     }
 
+    private void AddNewEntry(object sender, EventArgs e)
+    {
+        var addEntryForm = new Form
+        {
+            Text = "Add New Entry",
+            Size = new Size(300, 220),
+            FormBorderStyle = FormBorderStyle.FixedDialog,
+            StartPosition = FormStartPosition.CenterParent
+        };
+
+        var layout = new TableLayoutPanel
+        {
+            Dock = DockStyle.Fill,
+            ColumnCount = 2,
+            RowCount = 4,
+            Padding = new Padding(10),
+            AutoSize = true
+        };
+
+        layout.ColumnStyles.Add(new ColumnStyle(SizeType.Percent, 30));
+        layout.ColumnStyles.Add(new ColumnStyle(SizeType.Percent, 70));
+
+        var lblService = new Label { Text = "Service:", Anchor = AnchorStyles.Right, AutoSize = true };
+        var lblUsername = new Label { Text = "Username:", Anchor = AnchorStyles.Right, AutoSize = true };
+        var lblPassword = new Label { Text = "Password:", Anchor = AnchorStyles.Right, AutoSize = true };
+
+        var txtService = new TextBox { Dock = DockStyle.Fill };
+        var txtUsername = new TextBox { Dock = DockStyle.Fill };
+        var txtPassword = new TextBox { Dock = DockStyle.Fill, PasswordChar = '*' };
+
+        var btnSave = new Button { Text = "Save", Dock = DockStyle.Fill };
+        btnSave.Click += (s, args) =>
+        {
+            if (!string.IsNullOrWhiteSpace(txtService.Text) &&
+                !string.IsNullOrWhiteSpace(txtUsername.Text) &&
+                !string.IsNullOrWhiteSpace(txtPassword.Text))
+            {
+                data.Add(new PasswordEntry
+                {
+                    Service = txtService.Text,
+                    Username = txtUsername.Text,
+                    Password = txtPassword.Text
+                });
+                PopulateDataGrid();
+                addEntryForm.Close();
+            }
+            else
+            {
+                MessageBox.Show("All fields are required.", "Error", MessageBoxButtons.OK, MessageBoxIcon.Error);
+            }
+        };
+
+        layout.Controls.Add(lblService, 0, 0);
+        layout.Controls.Add(txtService, 1, 0);
+        layout.Controls.Add(lblUsername, 0, 1);
+        layout.Controls.Add(txtUsername, 1, 1);
+        layout.Controls.Add(lblPassword, 0, 2);
+        layout.Controls.Add(txtPassword, 1, 2);
+        layout.Controls.Add(btnSave, 0, 3);
+        layout.SetColumnSpan(btnSave, 2);
+
+        addEntryForm.Controls.Add(layout);
+        addEntryForm.ShowDialog();
+    }
+
+    // The rest of the original code (no changes needed)...
     private string AskMasterPassword()
     {
         var passwordForm = new Form
@@ -78,10 +305,6 @@ public class PasswordManagerApp : Form
                 return Convert.FromBase64String(saltB64);
             }
         }
-        catch (FileNotFoundException)
-        {
-            return GenerateSalt();
-        }
         catch
         {
             return GenerateSalt();
@@ -90,7 +313,7 @@ public class PasswordManagerApp : Form
 
     private byte[] GenerateSalt()
     {
-        return new byte[16]; // You can use a cryptographically secure random salt generator if desired.
+        return new byte[16];
     }
 
     private List<PasswordEntry> LoadData(string masterPassword)
@@ -104,12 +327,8 @@ public class PasswordManagerApp : Form
 
                 var key = GenerateKey(masterPassword, Convert.FromBase64String(saltB64));
                 var decryptedData = DecryptData(encryptedData, key);
-                return JsonConvert.DeserializeObject<List<PasswordEntry>>(decryptedData);
+                return JsonSerializer.Deserialize<List<PasswordEntry>>(decryptedData);
             }
-        }
-        catch (FileNotFoundException)
-        {
-            return new List<PasswordEntry>();
         }
         catch
         {
@@ -122,7 +341,7 @@ public class PasswordManagerApp : Form
     {
         using (var pbkdf2 = new Rfc2898DeriveBytes(masterPassword, salt, 100000))
         {
-            return Convert.ToBase64String(pbkdf2.GetBytes(32)); // 256-bit key
+            return Convert.ToBase64String(pbkdf2.GetBytes(32));
         }
     }
 
@@ -171,7 +390,7 @@ public class PasswordManagerApp : Form
     private void SaveData()
     {
         var key = GenerateKey(masterPassword, salt);
-        var encryptedData = EncryptData(JsonConvert.SerializeObject(data), key);
+        var encryptedData = EncryptData(JsonSerializer.Serialize(data), key);
 
         using (var writer = new BinaryWriter(File.Open(FILENAME, FileMode.Create)))
         {
@@ -187,43 +406,6 @@ public class PasswordManagerApp : Form
         {
             dataGridView.Rows.Add(entry.Service, entry.Username, new string('*', entry.Password.Length));
         }
-    }
-
-    private void AddNewEntry(object sender, EventArgs e)
-    {
-        var addEntryForm = new Form();
-        addEntryForm.Text = "Add New Entry";
-
-        var serviceBox = new TextBox { Dock = DockStyle.Top };
-        var usernameBox = new TextBox { Dock = DockStyle.Top };
-        var passwordBox = new TextBox { Dock = DockStyle.Top, PasswordChar = '*' };
-
-        addEntryForm.Controls.Add(serviceBox);
-        addEntryForm.Controls.Add(usernameBox);
-        addEntryForm.Controls.Add(passwordBox);
-
-        var saveButton = new Button { Text = "Save", Dock = DockStyle.Bottom };
-        saveButton.Click += (s, args) =>
-        {
-            if (!string.IsNullOrEmpty(serviceBox.Text) && !string.IsNullOrEmpty(usernameBox.Text) && !string.IsNullOrEmpty(passwordBox.Text))
-            {
-                data.Add(new PasswordEntry
-                {
-                    Service = serviceBox.Text,
-                    Username = usernameBox.Text,
-                    Password = passwordBox.Text
-                });
-                PopulateDataGrid();
-                addEntryForm.Close();
-            }
-            else
-            {
-                MessageBox.Show("All fields are required.", "Error", MessageBoxButtons.OK, MessageBoxIcon.Error);
-            }
-        };
-
-        addEntryForm.Controls.Add(saveButton);
-        addEntryForm.ShowDialog();
     }
 
     private void DeleteEntry(object sender, EventArgs e)
